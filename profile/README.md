@@ -1,6 +1,6 @@
 
 <img src="https://user-images.githubusercontent.com/77970826/228403785-901a4ec4-6bab-4c02-affa-26712acabfb0.png">
 
-영모: iOS 
+영모: iOS 최고
 
 힝
