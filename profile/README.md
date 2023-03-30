@@ -1,6 +1,4 @@
+![image](https://user-images.githubusercontent.com/39687846/228803728-4bb0252c-282b-4d4f-b2dd-2252df2ddcd0.png)
 
-<img src="https://user-images.githubusercontent.com/77970826/228403785-901a4ec4-6bab-4c02-affa-26712acabfb0.png">
 
-영모: iOS 최고
-
-힝
+영모: Android 최고
