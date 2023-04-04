@@ -1,4 +1,1 @@
-![image](https://user-images.githubusercontent.com/39687846/228803728-4bb0252c-282b-4d4f-b2dd-2252df2ddcd0.png)
-
-
-영모: Android 최고
+![image](https://www.apple.com/newsroom/images/live-action/wwdc-2023/Apple-WWDC23-hero_big.jpg.slideshow-xlarge_2x.jpg)
